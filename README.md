@@ -1,0 +1,1 @@
+DZONGKHA OCR
